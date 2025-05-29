@@ -1,2 +1,2 @@
 # Ares-at-War-part-1
-Welcome
+Welcome! I just stole this from CptArthur.
